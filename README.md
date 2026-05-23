@@ -72,4 +72,4 @@ Developed: May 23, 2026
 Origin: Operational governance research | The Faust Baseline™ Codex 3.5
 © 2026 The Faust Baseline LLC | All Rights Reserved | Unauthorized commercial use prohibited | intelligent-people.org
 
-Both documents on record. Dated. Attributed. One in plain language. One in protocol language.
+
