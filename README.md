@@ -1,0 +1,2 @@
+# HYBRID-MEMORY-ARCHITECTURE-PROTOCOL
+THE FAUST BASELINE™ intelligent-people.org SUPPLEMENT — HYBRID MEMORY ARCHITECTURE PROTOCOL Protocol HMA-1 Reasoning Retention Layer | Codex 3.5 | May 23, 2026 DRAFT — Pending Ratification
